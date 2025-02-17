@@ -14,23 +14,22 @@ CONFIG AUTO HEADSHOT FF 2020 • SCRIPT AUTO HEADSHOT ANTI BANNED 100% AUTO HEAD
 <a href=https://www.ponselive.com/wp-content/uploads/2020/12/script-auto-headshot-ff.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://www.ponselive.com/wp-content/uploads/2020/12/script-auto-headshot-ff.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
 Download Script Auto Headshot FF Free Fire Terbaru 2021 ✓
 <a href=https://i.ytimg.com/vi/PJFb9YoS7pg/hqdefault.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.ytimg.com/vi/PJFb9YoS7pg/hqdefault.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
-HACK FREE FIRE 1.62.2 SCRIPT️🏅AIMBOT AUTO HEADSHOT👺 - YouTube
+AIMBOT AUTO HEADSHOT👺 - akkybot
 <a href=https://i.pinimg.com/474x/eb/0e/d8/eb0ed89ed58e68c72528746a5f1fd67e.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.pinimg.com/474x/eb/0e/d8/eb0ed89ed58e68c72528746a5f1fd67e.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
 New Free Fire Best Script Auto headshot (+Download Link) | Headshots, Hack free money, Free gift card generator
 <a href=https://i.ytimg.com/vi/5rV9BqmMTuc/maxresdefault.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.ytimg.com/vi/5rV9BqmMTuc/maxresdefault.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
-CONFIG AUTO HEADSHOT FREE FIRE TERBARU || SCRIPT AUTO HEADSHOT NO BANNED!!
+CONFIG AUTO HEADSHOT BGMI || SCRIPT AUTO HEADSHOT NO BANNED!!
 <a href=https://teknodila.com/wp-content/uploads/2021/01/auto-headshot-free-fire.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://teknodila.com/wp-content/uploads/2021/01/auto-headshot-free-fire.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
-Download Script Auto Headshot FF 2021 [Anti Banned] Terbaru | TEKNO DILA
+Download Script Auto Headshot BGMI 2021 [Anti Banned] | 
 <a href=https://i.ytimg.com/vi/ked-2MOKHfY/maxresdefault.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.ytimg.com/vi/ked-2MOKHfY/maxresdefault.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
-CONFIG RUOK FF👽 AUTO HEADSHOT 2021❗SCRIPT FIX AIM 🎯 NEW REGEDIT BRAZIL 🇧🇷 AIMBOT 99% 🔥ANTI BAN ❌ - YouTube
+ AUTO HEADSHOT❗SCRIPT FIX AIM 🎯 NEW REGEDIT BRAZIL 🇧🇷 AIMBOT 99% 🔥ANTI BAN ❌ 
 <a href="https://i.ytimg.com/vi/JnY5YtRJDNA/hq720.jpg?sqp=-oaymwEcCOgCEMoBSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLCC9W93xkeDZ7PkRCOWqE3AidMzDw" target=_blank rel="noopener noreferrer"><img class=lazy data-src="https://i.ytimg.com/vi/JnY5YtRJDNA/hq720.jpg?sqp=-oaymwEcCOgCEMoBSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLCC9W93xkeDZ7PkRCOWqE3AidMzDw" src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
-script auto headshot free fire
+script auto headshot 
 <a href=https://i.ytimg.com/vi/5lLxbiGlO_Q/maxresdefault.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.ytimg.com/vi/5lLxbiGlO_Q/maxresdefault.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
-Script &ldquo;RUOK FF&rdquo; Real Auto Headshot Auto bisa Pamer Pepengshut Ke JANDA || Apk Original – Free Fire Imagem
+Script &ldquo;RUOK FF&rdquo; Real Auto Headshot Auto bisa Pamer Pepengshut Ke JANDA || Apk Original – Imagem
 <a href=https://i.ytimg.com/vi/hMildvXUMd0/maxresdefault.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.ytimg.com/vi/hMildvXUMd0/maxresdefault.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
 Colonel Headshot File Script FF#02 | Config Auto Headshot Like Colonel 👌 - YouTube
-<a href=https://i.ytimg.com/vi/4ntpFoGEtWw/maxresdefault.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.ytimg.com/vi/4ntpFoGEtWw/maxresdefault.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
-free fire config file auto headshot – Free Fire Imagem
+<a href=https://i.ytimg.com/vi/4ntpFoGEtWw/maxresdefault.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.ytimg.com/vi/4ntpFoGEtWw/maxresdefault.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt
 <a href=https://i.ytimg.com/vi/PGOZ5x8nFos/maxresdefault.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.ytimg.com/vi/PGOZ5x8nFos/maxresdefault.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
 SCRIPT AUTO HEADSHOT TERBARU SCRIPT YANG DI PAKE RUOK FF,AUTO GAMEPLAY KAYA RUOK - YouTube
 <a href=https://i.ytimg.com/vi/SvT5tuvluAI/maxresdefault.jpg target=_blank rel="noopener noreferrer"><img class=lazy data-src=https://i.ytimg.com/vi/SvT5tuvluAI/maxresdefault.jpg src="data:image/png;base64,R0lGODlhAQABAAD/ACwAAAAAAQABAAACADs=" alt></a>
